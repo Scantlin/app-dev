@@ -75,4 +75,4 @@ If you enjoy:
 
 …you will love *Stranger Things*.
 
-**Rating:** ⭐⭐⭐⭐½ (4.5/5)
+**Rating:** ⭐⭐⭐⭐⯪ (4.5/5)
